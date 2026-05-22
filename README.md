@@ -31,6 +31,6 @@ Cada um deles registrou um momento que me traz nostalgia, especialmente da époc
 
 <div align="center">
 
-🪻 *Entre projetos, produtos e código — este perfil guarda os primeiros capítulos.*
+🪻 *~Entre projetos, produtos e código,este perfil guarda os primeiros capítulos.*
 
 </div>
