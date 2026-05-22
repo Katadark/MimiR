@@ -1,6 +1,6 @@
 <div align="center">
 
-# 💜 Olá, sou Miriã :-)
+# 💜 Olá, sou a Miriã :-)
 
 
 
